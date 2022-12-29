@@ -9,5 +9,3 @@ I'm a 40 something Spaniard (he/him) working as a <a href="#"><img src="https://
 - Listening :musical_note:: music, audiobooks
 - Playing :game_die:: video games, board games, miniature games 
 <br><br/>
->About my nickname:  
-***Joram** is the main character of the [**Darksword**](https://margaretweis.com/collections/darksword) series by **Margaret Weis & Tracy Hickman**. I read this books back in the 90's and I adopted the name as my nickname since then.*
